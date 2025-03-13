@@ -57,7 +57,7 @@ This project **empowers product managers** by:
 
 ## 📬 Connect & Explore  
 📢 **LinkedIn:** ([LinkedIn Link](https://www.linkedin.com/in/sheetal-patangay/))  
-💡 **Check out more projects:** [[GitHub Profile](GitHub Link) ](https://github.com/Patangaysheetal?tab=repositories) 
+💡 **Check out more projects:** [GitHub Profile](https://github.com/Patangaysheetal?tab=repositories) 
 
 ---
 
